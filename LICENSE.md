@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with custom Shotcut for PC | Shotcut for Windows Panel | noise-reduction + multi-track-editing, the #1 panel. Includes noise-reduction
 
 
 
